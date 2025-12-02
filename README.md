@@ -1,6 +1,7 @@
 HAI HAI HAI HAI :3 
 
 < BASIC INFORMATION >
+
 uhhh i am zoip or zoiperzzz or any of the names on my links ^^
 
 i lovr talking && meeting new people so feel free to chat ! (unless i have some version of dni) 
