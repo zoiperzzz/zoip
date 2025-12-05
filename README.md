@@ -28,4 +28,5 @@ roleplay is welcome unless i am busy/afk or chatting with my friends ^^
 
 < BLINKIES >
 
-<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/4ed319be-255b-4ba4-8237-9acee7bca1a8" 
+<img width="300" height="40" alt="image" src="https://github.com/user-attachments/assets/3636128f-53db-4604-a74b-06c93dbb7991" />
+
