@@ -28,4 +28,4 @@ roleplay is welcome unless i am busy/afk or chatting with my friends ^^
 
 < BLINKIES >
 
-<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/4ed319be-255b-4ba4-8237-9acee7bca1a8" />
+<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/4ed319be-255b-4ba4-8237-9acee7bca1a8" /> <a href='https://blinkies.cafe' target='_blank'><img src='https://blinkies.cafe/b/display/blinkiesCafe-badge.gif' alt='blinkies.cafe | make your own blinkies!'></a> 
