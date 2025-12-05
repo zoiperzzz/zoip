@@ -10,6 +10,8 @@ i really like mcyt, specifically POW creations and the life series, if you could
 
 i prefer they/them and/or neos but i also use she/her :3 
 
+fandoms im in (in order of how active i am): vsmp, hermitcraft, puella magi madoka magica, the life series, pokemon, sonic, pretty cure, five nights at freddys, cardcaptor sakura, lifesteal, and bungou stray dogs
+
 i mainly play minecraft && ponytown but i am open to trying new games, so give ur suggestions ! 
 
 < PONYTOWN SPECIFICS > 
