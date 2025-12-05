@@ -25,3 +25,6 @@ im pretty much only on hermit hill and if not, im on party island!
 feel free to call me any of the characters i often play as on there (or just zoip/zoiperzzz if you prefer) however, please use my personal pronouns when referring to me! ex: "he was over there last time i checked" please do not do this as i do not use he/him pronouns, rather, say "they were over there last time i checked"
 
 roleplay is welcome unless i am busy/afk or chatting with my friends ^^
+
+< BLINKIES >
+
