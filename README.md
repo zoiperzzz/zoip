@@ -183,6 +183,9 @@ roleplay is welcome unless i am busy/afk or chatting with my friends
 ![tumblr_8f196bf3c7a74eedad7a1cd6c744e6c8_ce06f87f_250](https://github.com/user-attachments/assets/a33848e3-0aaf-47e1-a987-f45829388724)
 <img width="97" height="54" alt="tumblr_d6f3973d30cfc3549aafa47d5f071af1_e6206319_100" src="https://github.com/user-attachments/assets/288b9ec0-7e84-4847-8350-67b793a53d03" />
 ![tumblr_3eb31d6aa1fc9f756ef666be2d875c60_ec6aef38_100](https://github.com/user-attachments/assets/9b44cc28-f7e7-4b5c-808b-e312c354ff85)
+![tumblr_f19a40b5139da88d43ed01eeddc7f38b_bcc8e4bb_100](https://github.com/user-attachments/assets/d84e397c-dbca-453e-b574-3db35455c914)
+![tumblr_c7941b131c3f9a27fb023865c46bc704_d71000eb_100](https://github.com/user-attachments/assets/0cc1d083-10b2-4b4d-bfac-79020290ca5a)
+![tumblr_7dbee62affe7a10b8da9d97cf90031e3_a2ab313d_100](https://github.com/user-attachments/assets/2794b20d-7213-483e-9427-bcd6a633df99)
 
 
 
