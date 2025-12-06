@@ -37,3 +37,4 @@ roleplay is welcome unless i am busy/afk or chatting with my friends ^^
 
 (all have been collected from tumblr)
 
+![Image](https://github.com/user-attachments/assets/e6fbc9b5-588f-493f-ba6f-7a3010fc26fe)
