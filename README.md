@@ -15,7 +15,7 @@ uhhh i am zoip or zoiperzzz or any of the names on my links ![tumblr_f9984b4d061
 
  i lovr talking && meeting new people so feel free to chat ! (unless i have some version of dni) 
 i use a lot of emoticons and all caps if im really happy/excited ! i also try to use tone tags.
-i really like mcyt, specifically POW creations and the life series ! i mainly play minecraft && ponytown but i am open to trying new games, so give ur suggestions ! i prefer they/them and/or neos but i also use she/her :3 
+i really like mcyt, specifically POW creations and the life series ! i mainly play minecraft && ponytown but i am open to trying new games, so give ur suggestions ! i prefer they/them and/or neos but i also use she/her :3 please use warnings for things like heavy irl gore, grooming/sexual assault, self-harm, and general innapropriate content as it is triggering to me.
 
 ![tumblr_62504feab7cf7e13dfb538827a446976_b6a13a06_75](https://github.com/user-attachments/assets/e2e73cf1-a870-4556-9d6b-403c858269e4)
 autism, adhd, !sfw! age regressor, chronic pain/fatigue, & maladaptive daydreamer![tumblr_a01324b00b1e7b2848d4ce3d9eaea8b5_d80f7867_75](https://github.com/user-attachments/assets/90d5068e-eeb9-47a2-afab-6d7ddcac6f22)
