@@ -33,13 +33,14 @@ autism, adhd, !sfw! age regressor, chronic pain/fatigue, & maladaptive daydreame
 
 ~hermitcraft ![tumblr_ee2c838eabf172c02f23dc80bea9ff35_71de8f0d_75](https://github.com/user-attachments/assets/79fc5916-dec7-4382-abd4-1c7d208ea588)
 
+~the life series ![tumblr_305eb2f82e020ba6a626202694e1b629_6c84d891_75](https://github.com/user-attachments/assets/a729dba7-c29f-48ab-801c-31fb3413e6a1)
+
 ~puella magi madoka magica ![tumblr_6ffc7c227f2abfe6dfb4e137005bbd96_8e444de1_75](https://github.com/user-attachments/assets/ddc1b69b-beb6-42f7-a187-5c3f925fd873)
 
 
 ~cowboys smp ![tumblr_cad9653f240c2ce833b5d8a8456f9243_3e2a3b5c_75](https://github.com/user-attachments/assets/7327c115-a36b-4c0e-900c-e5fc5126c7c6)
 
 
-~the life series ![tumblr_305eb2f82e020ba6a626202694e1b629_6c84d891_75](https://github.com/user-attachments/assets/a729dba7-c29f-48ab-801c-31fb3413e6a1)
 
 ~pokemon ![tumblr_67ee4a2435c6c63a3ee6557da100949c_8a429217_75](https://github.com/user-attachments/assets/79fe0a4b-003f-48cf-8282-d65246e69b6f)
 
