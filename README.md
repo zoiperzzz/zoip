@@ -79,7 +79,8 @@ autism, adhd, !sfw! age regressor, chronic pain/fatigue, & maladaptive daydreame
 <img width="640" height="43" alt="tumblr_1546227b682ab3c65a2b632697561f94_57fc008e_640" src="https://github.com/user-attachments/assets/e1316ebf-b8a0-4089-a0f7-f0191b7139d2" />
 
 
-![tumblr_10747e2e53a202b0d73a86d5c38aeaee_e23d8457_75](https://github.com/user-attachments/assets/ec865d06-c536-49b8-9ad7-92845c029713) music artists i love [in no order] : 
+![tumblr_10747e2e53a202b0d73a86d5c38aeaee_e23d8457_75](https://github.com/user-attachments/assets/ec865d06-c536-49b8-9ad7-92845c029713) music artists i love [in no order] ![tumblr_69b4010917a08277ac5e4115ae293544_9038e0c5_75](https://github.com/user-attachments/assets/b682db56-9798-4443-8805-580efb12295c)
+ : 
 
 ~Haley Heynderickx ![tumblr_30071d9e1afe8deb80303d5800efe2e2_d312814e_75](https://github.com/user-attachments/assets/42181d72-ef67-418b-8d24-c127a91e05b8)
 
