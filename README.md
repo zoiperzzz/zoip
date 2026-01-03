@@ -233,5 +233,3 @@ roleplay is welcome unless i am busy/afk or chatting with my friends
 
 (all media collected off of tumblr ![tumblr_2fdab20c6d10c33f79e8de95e3689fe5_937c355f_75](https://github.com/user-attachments/assets/12e31853-973c-4fb4-a180-cb026728a7c4)
 )
-
-![Profile Views](https://komarev.com/ghpvc/?username=zoiperzzz) 
